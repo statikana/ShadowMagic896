@@ -15,6 +15,7 @@ All of my code is under the MIT license unless specifically noted otherwise.
 ## Contacts
 Discord: [Cookie?#1256](https://discord.com/users/724811595976409119)
  - Feel free to add me! Just don't spam / try to advertise to me, please.
+ 
 Steam: [ShadowMagic896](https://steamcommunity.com/profiles/76561198962222154)
  - You can add me here too, but I don't play much any more.
 
